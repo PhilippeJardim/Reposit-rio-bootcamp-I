@@ -9,7 +9,7 @@
 
 - Como me contatar **philippe.jardim@gmail.com**
 
-- Saiba sobre minhas experiências profissionais [https://www.canva.com/design/DAEs5sekH3I/FBsD8wpCgjUC005-UneoQg/edit](https://www.canva.com/design/DAEs5sekH3I/FBsD8wpCgjUC005-UneoQg/edit)
+- Saiba sobre minhas experiências profissionais [(https://www.linkedin.com/in/philippejardim/)]
 
 - Fatos curiosos **Sou apaixonado em jogar futevôlei**
 
